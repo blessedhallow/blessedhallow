@@ -12,6 +12,6 @@
 
 <p align="center">  XTRA   STUFF    𓎟𓎟
 
-<p align="center">  interests   ;;  ﹒  RGCU , Project Hail Mary , Lars and the Real Girl , PRSK 
-<p align="center">  umamusume , RE , anime , youtube commentary , horror games , angels , JRWI
+<p align="center">  interests   ;;  ﹒  RGCU , Project Hail Mary , Lars and the Real Girl , PRSK , RE
+<p align="center">  umamusume , anime , youtube commentary , psych horror games , angels , JRWI
 <p align="center">  ocs + writing , roblox games , HSR , iron lung , visual novels ++ more !!
