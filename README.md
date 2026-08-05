@@ -2,5 +2,5 @@
 <p align="center"> ꒰ ꒰ׁׅ ྀིㅤ۫　 ͜͝ | ͜͝ ⑅　halloran  ou  noel　 ˳ 
 <p align="center"> he　it　thy　hymn  𓈒 ۫ ּ⠀ ♡　tmasc　mlm
 
-<p align="center"> <img width="536" height="87" alt="Untitled220_20260805222253" src="https://github.com/user-attachments/assets/7d78fe5c-0bc4-40c1-af14-da7ae641c1f2" />
+<p align="center"> <img width="536" height="127" alt="Untitled220_20260805222253" src="https://github.com/user-attachments/assets/7d78fe5c-0bc4-40c1-af14-da7ae641c1f2" />
 
