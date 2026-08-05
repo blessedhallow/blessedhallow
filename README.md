@@ -15,3 +15,5 @@
 <p align="center">  interests   ;;  ﹒  RGCU , Project Hail Mary , Lars and the Real Girl , PRSK , RE
 <p align="center">  umamusume , anime , youtube commentary , psych horror games , angels , JRWI
 <p align="center">  ocs + writing , roblox games , HSR , iron lung , visual novels ++ more !!
+
+<p align="center"> <img width="536" height="157" alt="Untitled220_20260805222253" src="https://github.com/user-attachments/assets/7d78fe5c-0bc4-40c1-af14-da7ae641c1f2" />
